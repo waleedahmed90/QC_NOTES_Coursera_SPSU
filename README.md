@@ -1,0 +1,1 @@
+# QC_NOTES_Coursera_SPSU
